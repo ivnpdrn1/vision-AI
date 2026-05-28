@@ -1,3 +1,8 @@
+
+https://1drv.ms/o/c/8d74cdd378db5926/IgBzkucpWEv2SK1p6qVIEVrvAR7mV9g6hZHa2a0EvKRQ5rA?e=acE6Ga
+
+**************************************
+
 Sí. De hecho:
 
 # Raspberry Pi es EXCELENTE para comenzar
